@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **shivamnavadiya12345@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_1ghWGUphisfo94e2QBUYGkTeufOhYaI/view?usp=drive_link](https://drive.google.com/file/d/1_1ghWGUphisfo94e2QBUYGkTeufOhYaI/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1OKQVT_62rIatPuLmv2sn50nHFP2ZOE9p/view?usp=sharing](https://drive.google.com/file/d/1OKQVT_62rIatPuLmv2sn50nHFP2ZOE9p/view?usp=sharing)
 
 - ⚡ Fun fact **I think i am funny**
 
